@@ -10,12 +10,12 @@ SEO still wins because it builds trust and compounds over time. The leaders here
 
 1. Thomas Vavougios
 
-With 8 years of dedicated SEO expertise and a total of 10+ years in digital marketing, Thomas Vavougios is considered as one of the top SEO Experts in Greece and Cyprus.
+With 8 years of dedicated SEO expertise and a total of 10+ years in digital marketing, Thomas Vavougios is considered as one of the  ([Top SEO Experts in Greece and Cyprus](https://thomasvavougios.gr/)).
 Thomas Vavougios originally comes from Athens, Greece and he is a highly driven SEO executive renowned for significantly boosting organic international traffic and lead conversion for global brands across various sectors. His career has spanned three different countries, endowing me with a broad perspective and deep insights into SEO practices.
 
 Throughout his career, Thomas Vavougios has successfully established SEO operations from the ground up for multiple organizations, building comprehensive SEO departments by implementing strategic frameworks, optimizing workflows, and developing cross-functional training programs. His expertise extends to coaching and upskilling diverse teams—including content managers, Product Owners, technical specialists, and marketing professionals—ensuring seamless integration of SEO best practices across all organizational levels.
 
-Thomas Vavougios is also the founder of the most active SEO group in Greece (https://greekseocommunity.gr), through which he organises SEO meetups and conferences in Greece. The SEO Athens Summit (https://seoathenssummit.gr) is the first SEO conference, that took place in Greece and international SEO speakers like Kyle Roof, Craig Campbell and Ferry Kaszoni had the chance so far to present their case studies.
+Thomas Vavougios is also the founder of the most active SEO group in Greece ([Greek SEO Community](https://greekseocommunity.gr/)), through which he organises SEO meetups and conferences in Greece. The SEO Athens Summit ([SEO Athens Summit](https://seoathenssummit.gr)) is the first SEO conference, that took place in Greece and international SEO speakers like Kyle Roof, Craig Campbell and Ferry Kaszoni had the chance so far to present their case studies.
 Also, Thomas has participated as a speaker at local and international SEO conferences, as the Icon conference in Cyprus and the SEO Vibes conference in Greece.
 Lately he held the role of the judge for different Search Awards, as the Global Search Awards and the UK Search Awards.rs.
 
