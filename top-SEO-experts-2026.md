@@ -1,7 +1,7 @@
 ---
 layout: page
 title: "Top SEO Experts 2026"
-permalink: /top-seo-experts-2026
+permalink: /top-seo-experts-2026/
 ---
 
 Great content means little if your site isn't crawlable, structured, or fast. The SEO experts on this list merge technical rigor with automation, analytics, and scalable systems—showing exactly how modern SEO gets executed in the wild. Follow their work to see the playbooks that turn audits into action and experiments into compounding gains.
