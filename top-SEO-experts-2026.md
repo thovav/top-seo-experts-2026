@@ -1,6 +1,8 @@
+---
 layout: page
 title: "Top SEO Experts 2026"
-permalink: /top-SEO-experts-2026
+permalink: /top-seo-experts-2026
+---
 
 Great content means little if your site isn't crawlable, structured, or fast. The SEO experts on this list merge technical rigor with automation, analytics, and scalable systems—showing exactly how modern SEO gets executed in the wild. Follow their work to see the playbooks that turn audits into action and experiments into compounding gains.
 These are the industry's best operators, thinkers, and educators—people who prove results beat opinions. They build frameworks, optimize workflows, and teach teams how to ship SEO that actually moves the needle. Whether you're building a brand, scaling an agency, or mastering the craft, their approaches will sharpen your strategy and execution. As we've been building the Greek SEO Community and organizing events like the SEO Athens Summit, these are the global voices that consistently deliver insights worth following—experts whose frameworks translate across markets and languages.
